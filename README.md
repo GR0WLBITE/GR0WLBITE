@@ -1,6 +1,5 @@
 - My name's GROWL! I also go by Pegasus or Star!
 - ╰ You may also call me by the name of my current OC/cosplay.
-- Pronoun page is in progress :3
 - I use tone tags often, you don't have to but it helps me personally.
 - Ask about my interests! I have too many to count.
 - EST time zone.
