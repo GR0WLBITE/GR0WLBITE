@@ -3,7 +3,7 @@
 - I use tone tags often, you don't have to but it helps me personally.
 - Ask about my interests! I have too many to count.
 - EST time zone.
-- Making a rentry is hard, don't expect it for at least a while.
+- Friends and fandom please int!! I love talking to people.
 - ...
 - ...
 - :) ☆
